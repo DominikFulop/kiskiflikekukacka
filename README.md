@@ -1,1 +1,1 @@
-# kiskiflikekukacka
+masodfoku fuggveny
