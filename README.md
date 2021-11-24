@@ -1,1 +1,2 @@
-masodfoku fuggveny
+Fülöp Dominik
+Wendler Márk
