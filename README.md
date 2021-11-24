@@ -1,2 +1,2 @@
-Fülöp Dominik
-Wendler Márk
+Fülöp Dominik masodfoku egyenlet
+Wendler Márk elsofoku egyenlet
